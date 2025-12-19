@@ -1,25 +1,14 @@
 # 速鹰666官网登录地址
 
+|最新地址|其他地址(可能要翻墙)|
+|--------|--------|
+|地址1：[suying91.xyz](https://suying91.xyz/auth/register?code=fOxn)|地址5：[suying59.xyz](https://suying59.xyz/auth/register?code=fOxn)|
+|地址2：[suying98.xyz](https://suying98.xyz/auth/register?code=fOxn)|地址6：[suying92.xyz](https://suying92.xyz/auth/register?code=fOxn)|
+|地址3：[sy66a88.com](https://sy66a88.com/auth/register?code=fOxn)|地址7：[suying82.xyz](https://suying82.xyz/auth/register?code=fOxn)|
+|地址4：[sy77a12.com](https://sy77a12.com/auth/register?code=fOxn)|地址8：[sy7770.com](https://sy7770.com/auth/register?code=fOxn)|
 
-最新地址
 
-地址1：[suying91.xyz](https://suying91.xyz/auth/register?code=fOxn)
 
-地址2：[suying98.xyz](https://suying98.xyz/auth/register?code=fOxn)
-
-地址3：[sy66a88.com](https://sy66a88.com/auth/register?code=fOxn)
-
-地址4：[sy77a12.com](https://sy77a12.com/auth/register?code=fOxn)
-
-地址5：[suying818.xyz](https://suying818.xyz/auth/register?code=fOxn)
-
-地址6：[suying59.xyz](https://suying59.xyz/auth/register?code=fOxn)
-
-地址7：[suying92.xyz](https://suying92.xyz/auth/register?code=fOxn)
-
-地址8：[suying82.xyz](https://suying82.xyz/auth/register?code=fOxn)
-
-地址9：[sy7770.com](https://sy7770.com/auth/register?code=fOxn)
 
 
 ## 速鹰666简介
