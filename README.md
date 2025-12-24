@@ -2,19 +2,19 @@
 
 |最新地址|其他地址(可能要翻墙)|
 |--------|--------|
-|最新01：[suying91.xyz](https://suying91.xyz/auth/register?code=fOxn)|其他01：[sy66a88.com](https://sy66a88.com/auth/register?code=fOxn)|
-|最新02：[suying98.xyz](https://suying98.xyz/auth/register?code=fOxn)|其他02：[sy77a12.com](https://sy77a12.com/auth/register?code=fOxn)|
-|最新03：[suying100.xyz](https://suying100.xyz/auth/register?code=fOxn)|其他03：[suying818.xyz](https://suying818.xyz/auth/register?code=fOxn)|
-|最新04：[suying148.xyz](https://suying148.xyz/auth/register?code=fOxn)|其他04：[suying810.net](https://suying810.net/auth/register?code=fOxn)|
-|最新05：[suying159.xyz](https://suying159.xyz/auth/register?code=fOxn)|其他05：[suying811.com](https://suying811.com/auth/register?code=fOxn)|
-|最新06：[suying700.xyz](https://suying700.xyz/auth/register?code=fOxn)|其他06：[suying828.com](https://suying828.com/auth/register?code=fOxn)|
-|最新07：[suying800.xyz](https://suying800.xyz/auth/register?code=fOxn)|其他07：[suying200.org](https://suying200.org/auth/register?code=fOxn)|
-|最新08：[suying822.xyz](https://suying822.xyz/auth/register?code=fOxn)|其他08：[suying82.com](https://suying82.com/auth/register?code=fOxn)|
-|最新09：[suying888.xyz](https://suying888.xyz/auth/register?code=fOxn)|其他09：[suying59.xyz](https://suying59.xyz/auth/register?code=fOxn)|
-|最新10：[suying900.xyz](https://suying900.xyz/auth/register?code=fOxn)|其他10：[suying92.xyz](https://suying92.xyz/auth/register?code=fOxn)|
-|最新11：[suying969.xyz](https://suying969.xyz/auth/register?code=fOxn)|其他11：[suying999.xyz](https://suying999.xyz/auth/register?code=fOxn)|
-|最新12：[suying991.xyz](https://suying991.xyz/auth/register?code=fOxn)|其他12：[suying910.xyz](https://suying910.xyz/auth/register?code=fOxn)|
-|最新13：[suying992.xyz](https://suying992.xyz/auth/register?code=fOxn)|其他13：[suying918.xyz](https://suying918.xyz/auth/register?code=fOxn)|
+|01：[suying91.xyz](https://suying91.xyz/auth/register?code=fOxn)|01：[sy66a88.com](https://sy66a88.com/auth/register?code=fOxn)|
+|02：[suying98.xyz](https://suying98.xyz/auth/register?code=fOxn)|02：[sy77a12.com](https://sy77a12.com/auth/register?code=fOxn)|
+|03：[suying100.xyz](https://suying100.xyz/auth/register?code=fOxn)|03：[suying818.xyz](https://suying818.xyz/auth/register?code=fOxn)|
+|04：[suying148.xyz](https://suying148.xyz/auth/register?code=fOxn)|04：[suying810.net](https://suying810.net/auth/register?code=fOxn)|
+|05：[suying159.xyz](https://suying159.xyz/auth/register?code=fOxn)|05：[suying811.com](https://suying811.com/auth/register?code=fOxn)|
+|06：[suying700.xyz](https://suying700.xyz/auth/register?code=fOxn)|06：[suying828.com](https://suying828.com/auth/register?code=fOxn)|
+|07：[suying800.xyz](https://suying800.xyz/auth/register?code=fOxn)|07：[suying200.org](https://suying200.org/auth/register?code=fOxn)|
+|08：[suying822.xyz](https://suying822.xyz/auth/register?code=fOxn)|08：[suying82.com](https://suying82.com/auth/register?code=fOxn)|
+|09：[suying888.xyz](https://suying888.xyz/auth/register?code=fOxn)|09：[suying59.xyz](https://suying59.xyz/auth/register?code=fOxn)|
+|10：[suying900.xyz](https://suying900.xyz/auth/register?code=fOxn)|10：[suying92.xyz](https://suying92.xyz/auth/register?code=fOxn)|
+|11：[suying969.xyz](https://suying969.xyz/auth/register?code=fOxn)|11：[suying999.xyz](https://suying999.xyz/auth/register?code=fOxn)|
+|12：[suying991.xyz](https://suying991.xyz/auth/register?code=fOxn)|12：[suying910.xyz](https://suying910.xyz/auth/register?code=fOxn)|
+|13：[suying992.xyz](https://suying992.xyz/auth/register?code=fOxn)|13：[suying918.xyz](https://suying918.xyz/auth/register?code=fOxn)|
 
 
 
